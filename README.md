@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Annie, HUNG
+- 👀 I’m interested in marketing business analysis.
+- 🌱 I have two master degrees of data and business analytics and MBA.
+- 💞️ I’m looking to an intership
