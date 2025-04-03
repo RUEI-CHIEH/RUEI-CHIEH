@@ -6,5 +6,5 @@
 🛠️ Skilled in Python, R, SQL, Power BI, Excel, Tableau, and data visualization.  
 📈 Experienced in data storytelling, market research, and cross-cultural communication.  
 
-✨ Let’s connect and collaborate — I’m always open to meaningful conversations and projects!
+✨ Let’s connect and collaborate! I’m always open to meaningful conversations and projects!
 
