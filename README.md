@@ -1,4 +1,4 @@
-👋 Hi there, I’m Annie HUNG 
+👋 Hi, I’m Annie HUNG 
 
 🎓 I hold **dual master's degrees** in Business Administration (MBA) and Data & Business Analytics.  
 📊 Passionate about **business analysis, marketing strategy, e-commerce**, and using data to drive better decisions.  
